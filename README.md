@@ -1,1 +1,1 @@
-# zaverecny_projekt
+# POLOLETNI PROJEKT
